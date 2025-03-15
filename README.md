@@ -34,5 +34,3 @@ I enjoy collaborating with **autonomous teams**, working with **scalable archite
 ## 📫 **Let's Connect!**  
 💼 [LinkedIn](https://www.linkedin.com/in/mariellyssoto/)  
 💻 [GitHub](https://github.com/silverxmary)  
-📩 **Email:** mariellys.soto.s@gmail.com  
-
